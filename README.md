@@ -1,3 +1,3 @@
 # fan_cp2
 capture points for gmod darkrp
-https://works.fanatiktop.xyz/view/page/fan_cp/
+https://www.youtube.com/watch?v=3dZzhZLm3gw
